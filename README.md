@@ -1,0 +1,2 @@
+# heloword
+hasanhocanın kodlaı
